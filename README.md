@@ -1,1 +1,0 @@
-# noahalvaroo.github.id
